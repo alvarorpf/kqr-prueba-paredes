@@ -1,0 +1,1 @@
+# kqr-prueba-paredes
